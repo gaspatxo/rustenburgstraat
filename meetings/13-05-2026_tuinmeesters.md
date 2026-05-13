@@ -8,7 +8,7 @@
 
 ## Discussed
 
-We will do the first community event on [_Burendag_](https://www.burendag.nl/), 26 September 2026. There are no specific ideas on what we would like to do then yet.
+We will do the first community event on [_Burendag_](https://www.burendag.nl/), 26 September 2026. We can get budget for this event specifically. There are no specific ideas on what we would like to do then yet.
 
 Plans for the communal areas were discussed, we decided to start by getting a semi-permanent wooden picnic table. There are concerns about this table inviting noisy nightly gatherings thus we take this first step as also a test.
 
